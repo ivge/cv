@@ -4,7 +4,7 @@
 📍 Україна  
 📞 +30955147040  
 📧 swordhorde@gmail.com  
-🔗 https://www.linkedin.com/in/ivan-hevchuk-41744a5a  
+🔗 [LinkedIn](https://www.linkedin.com/in/ivan-hevchuk-41744a5a)
 
 ---
 
